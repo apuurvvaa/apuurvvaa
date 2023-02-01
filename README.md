@@ -7,4 +7,4 @@
 - 💬 Ask me about what I'm currently working on!
 - 📫 How to reach me: apuurva.singh@gmail.com 
 - 🌩️ Pronouns: She/Her/Hers
-- 🌏 Fun fact: I love going on hikes, weightlift, take roadtrips
+- 🌏 Fun fact: I love going on hikes, weightlifting, and takeing roadtrips
